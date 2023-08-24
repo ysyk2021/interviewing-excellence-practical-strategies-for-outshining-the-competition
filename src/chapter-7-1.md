@@ -1,5 +1,3 @@
-Identifying your unique selling points
-=======================================================================================
 
 In job interviews, it is essential to demonstrate your value proposition and stand out as the best candidate for the job. In this chapter, we will discuss strategies for identifying your unique selling points and effectively communicating them during job interviews.
 

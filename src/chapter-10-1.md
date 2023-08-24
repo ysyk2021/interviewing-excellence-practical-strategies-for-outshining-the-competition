@@ -1,5 +1,3 @@
-Understanding the Salary Negotiation Process
-=========================================================================================
 
 Negotiating salary and benefits can be a critical part of the job interview process. In this chapter, we'll explore the salary negotiation process and provide strategies for understanding and navigating it effectively.
 

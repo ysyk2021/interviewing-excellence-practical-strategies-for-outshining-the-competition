@@ -1,5 +1,3 @@
-Techniques for Continuous Improvement of Your Interviewing Skills
-=======================================================================================================================================
 
 Interviewing skills are essential for career success, and the process of improving them should be a lifelong journey. In this chapter, we'll explore techniques for continuous improvement of your interviewing skills and building a comprehensive interviewing skills toolkit for excellence.
 

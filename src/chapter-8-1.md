@@ -1,5 +1,3 @@
-Phone and Video Interviews
-=================================================================================
 
 In today's world, many interviews are conducted remotely, either via phone or video. While these types of interviews offer some benefits, such as convenience and flexibility, they also require a different approach than in-person interviews. In this chapter, we will discuss tips for navigating phone and video interviews.
 

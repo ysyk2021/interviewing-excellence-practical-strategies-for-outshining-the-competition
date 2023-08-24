@@ -1,5 +1,3 @@
-Techniques for Answering Common Interview Questions
-====================================================================================================================
 
 During an interview, you will likely be asked a variety of common interview questions designed to assess your skills and experience. In this chapter, we will discuss techniques for answering common interview questions in a way that effectively showcases your strengths and makes a positive impression on potential employers.
 

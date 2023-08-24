@@ -1,5 +1,3 @@
-Techniques for managing interview anxiety
-=================================================================================
 
 Interviewing for a job can be a stressful experience, and it's common to experience anxiety before and during the interview. However, managing interview anxiety is essential for performing well in the interview and showcasing your skills and qualifications to potential employers. In this chapter, we'll explore techniques for managing interview anxiety and preparing for a successful interview.
 

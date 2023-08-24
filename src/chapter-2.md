@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Interview Process
-==============================================
 
 In this chapter, we'll explore the interview process and provide practical strategies for outshining the competition. Understanding the different types of job interviews, what to expect during the interview process, and how to prepare for each stage can help you feel confident and prepared.
 

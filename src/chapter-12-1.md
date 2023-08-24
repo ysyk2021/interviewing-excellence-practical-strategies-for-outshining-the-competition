@@ -1,5 +1,3 @@
-Using Advanced Storytelling Techniques to Make Your Answers Compelling
-===================================================================================================================================
 
 In this chapter, we'll discuss advanced storytelling techniques that can help you make your answers more compelling and memorable during an interview.
 

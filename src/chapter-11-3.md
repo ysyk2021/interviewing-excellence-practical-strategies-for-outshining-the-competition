@@ -1,5 +1,3 @@
-Creating a Positive First Impression
-===================================================================================
 
 In this chapter, we'll discuss the importance of nonverbal communication in making a positive first impression during an interview. Mastering your nonverbal communication can help you appear confident, professional, and engaged, which can greatly improve your chances of succeeding in an interview.
 

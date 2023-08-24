@@ -1,5 +1,3 @@
-Techniques for answering difficult or unexpected questions with excellence
-===============================================================================================================================================
 
 In this chapter, we'll explore techniques for answering difficult or unexpected interview questions with excellence. The ability to handle difficult questions with ease and professionalism is a key skill in any job interview.
 

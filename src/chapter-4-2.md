@@ -1,5 +1,3 @@
-Creating a Professional Online Presence
-================================================================================
 
 In today's digital age, it is important to have a professional online presence that aligns with your personal brand. In this chapter, we will discuss strategies for building your personal brand through creating a professional online presence.
 

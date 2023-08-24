@@ -1,5 +1,3 @@
-Tips for Creating an Effective Interview Preparation Plan
-=================================================================================================
 
 Preparation is key to performing well in a job interview. In this chapter, we'll explore tips for creating an effective interview preparation plan.
 

@@ -1,5 +1,3 @@
-Strategies for Negotiating Benefits and Perks
-==========================================================================================
 
 In this chapter, we'll explore strategies for negotiating salary and benefits to ensure that you're compensated fairly for your experience and skills. Negotiating benefits and perks can also help you achieve a better work-life balance and improve your overall job satisfaction.
 

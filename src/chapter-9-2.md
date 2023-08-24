@@ -1,5 +1,3 @@
-Strategies for Staying Top-of-Mind with Hiring Managers
-====================================================================================================
 
 In this chapter, we'll explore strategies for following up after an interview to stay top-of-mind with hiring managers. A thoughtful and professional follow-up can leave a lasting impression on the interviewer and increase your chances of getting the job.
 

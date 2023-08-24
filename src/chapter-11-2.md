@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==================================================================================
 
 In addition to interpreting your interviewer's nonverbal cues, it is important to be aware of and control your own nonverbal cues. In this chapter, we will discuss how to master nonverbal communication by controlling your own body language, facial expressions, tone of voice, and other nonverbal cues in job interviews.
 

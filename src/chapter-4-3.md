@@ -1,5 +1,3 @@
-Crafting a Resume and Cover Letter That Stand Out
-==========================================================================================
 
 Your resume and cover letter are often the first things potential employers see when evaluating your application. In this chapter, we will discuss strategies for crafting a resume and cover letter that effectively showcase your skills and experiences and help you stand out from the competition.
 

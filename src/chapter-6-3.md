@@ -1,5 +1,3 @@
-Communicating Effectively During the Interview
-===============================================================================================================
 
 Effective communication during an interview is a crucial part of outshining the competition and impressing potential employers. In this chapter, we will discuss strategies for communicating effectively during the interview.
 

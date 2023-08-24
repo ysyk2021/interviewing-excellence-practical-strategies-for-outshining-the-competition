@@ -1,5 +1,3 @@
-Group Interviews
-=======================================================================
 
 Group interviews can be a challenging experience for job candidates. In this chapter, we'll discuss strategies for navigating group interviews and standing out from the competition.
 

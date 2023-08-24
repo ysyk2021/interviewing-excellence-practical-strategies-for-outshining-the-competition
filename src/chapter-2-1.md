@@ -1,5 +1,3 @@
-Different Types of Job Interviews
-=================================================================================
 
 The interview process can be daunting, especially if you are unfamiliar with the various types of job interviews. In this chapter, we will discuss the different types of job interviews and strategies for preparing for each type.
 

@@ -1,5 +1,3 @@
-Strategies for Building Confidence and a Winning Mindset
-================================================================================================
 
 Going into an interview can be nerve-wracking, especially if you are up against tough competition. However, by building confidence and adopting a winning mindset, you can increase your chances of success. In this chapter, we will discuss strategies for building confidence and a winning mindset to help you ace the interview.
 

@@ -1,5 +1,3 @@
-What to expect during the interview process
-===========================================================================================
 
 Job interviews can be stressful and intimidating. Understanding the interview process can help you prepare effectively and increase your chances of success. In this chapter, we will discuss what to expect during the interview process.
 

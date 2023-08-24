@@ -1,5 +1,3 @@
-Chapter 3: Researching the Company and Position
-===============================================
 
 In this chapter, we'll explore strategies for researching the company and position before the interview. Gathering information about the company and its culture, understanding the job requirements and responsibilities, and identifying potential interview questions can help you prepare effectively and outshine the competition.
 

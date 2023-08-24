@@ -1,5 +1,3 @@
-Identifying areas for improvement and how to address them
-===============================================================================================================================
 
 As with any skill, there is always room for improvement when it comes to your interviewing skills. In this chapter, we'll explore strategies for identifying areas for improvement and how to address them.
 

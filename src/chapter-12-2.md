@@ -1,5 +1,3 @@
-The STAR Method for Answering Behavioral Questions with Excellence
-===============================================================================================================================
 
 In this chapter, we'll explore advanced interviewing strategies for answering behavioral questions with excellence. Behavioral questions ask about specific situations you've experienced in the past and how you handled them. The STAR method is an effective way to structure your responses and showcase your skills and experience.
 

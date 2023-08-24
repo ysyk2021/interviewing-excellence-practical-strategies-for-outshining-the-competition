@@ -1,5 +1,3 @@
-Chapter 7: Demonstrating Your Value Proposition
-===============================================
 
 In this chapter, we'll explore strategies for demonstrating your value proposition to potential employers. Specifically, we'll focus on identifying your unique selling points, showcasing your skills, achievements, and experience, and providing evidence of your qualifications.
 

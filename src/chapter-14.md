@@ -1,5 +1,3 @@
-Chapter 14: Building Your Interviewing Skills Toolkit for Excellence
-====================================================================
 
 Building a toolkit of interview skills is essential for achieving excellence in job interviews. In this chapter, we'll explore tools and resources for interview preparation and success, techniques for continuous improvement, and how to identify areas for improvement and address them.
 

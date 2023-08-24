@@ -1,5 +1,3 @@
-Second-round and final interviews
-========================================================================================
 
 Second-round and final interviews are critical components of the interviewing process. In this chapter, we'll discuss strategies for navigating these types of interviews and standing out from the competition.
 

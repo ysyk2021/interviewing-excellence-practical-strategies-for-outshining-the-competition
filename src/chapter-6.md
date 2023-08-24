@@ -1,5 +1,3 @@
-Chapter 6: Answering Common Interview Questions with Excellence
-===============================================================
 
 In this chapter, we'll explore techniques for answering common interview questions with excellence. We'll also discuss how to handle difficult interview questions and situations, as well as how to communicate effectively during the interview.
 

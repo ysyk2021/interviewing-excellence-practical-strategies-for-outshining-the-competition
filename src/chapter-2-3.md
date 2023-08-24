@@ -1,5 +1,3 @@
-How to prepare for each stage of the interview process
-======================================================================================================
 
 Job interviews are a multi-stage process, and each stage requires different preparation strategies. In this chapter, we will discuss how to prepare for each stage of the interview process.
 

@@ -1,5 +1,3 @@
-Providing Evidence of Your Qualifications
-==========================================================================================
 
 In an interview, it's not enough to simply state that you are qualified for the position; you must provide evidence of your qualifications. This evidence helps the interviewer understand why you are the ideal candidate for the job. In this chapter, we will discuss how to effectively demonstrate your value proposition in an interview.
 

@@ -1,5 +1,3 @@
-Tools and Resources for Interview Preparation and Success
-===============================================================================================================================
 
 Interviewing is a skill that can be developed with practice and preparation. In this chapter, we will explore tools and resources that can help you build your interviewing skills toolkit and increase your chances of success in interviews.
 

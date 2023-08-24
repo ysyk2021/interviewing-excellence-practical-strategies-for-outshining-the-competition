@@ -1,5 +1,3 @@
-Chapter 5: Preparing for the Interview
-======================================
 
 Preparing for an interview is crucial for success. In this chapter, we'll explore strategies for creating an effective interview preparation plan, managing interview anxiety, and building confidence and a winning mindset.
 

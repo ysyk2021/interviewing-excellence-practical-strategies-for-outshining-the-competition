@@ -1,5 +1,3 @@
-Reading and Interpreting Body Language
-=====================================================================================
 
 In this chapter, we will discuss how to master nonverbal communication in job interviews. Nonverbal communication includes body language, facial expressions, tone of voice, and other nonverbal cues that convey important information about how we feel and what we mean. Understanding and interpreting nonverbal communication can help you read your interviewer's reactions and adjust your own behavior for a more successful interview.
 
