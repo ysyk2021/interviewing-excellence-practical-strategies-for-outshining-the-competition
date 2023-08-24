@@ -1,5 +1,4 @@
 
-
 Interviewing is a crucial part of the job search process, and preparing for interviews is essential for achieving success. In this book, we've explored practical strategies for outshining the competition in job interviews.
 
 Summary of Key Points
