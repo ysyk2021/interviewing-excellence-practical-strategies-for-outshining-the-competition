@@ -10,3 +10,7 @@ Throughout the book, we'll also address some of the common challenges and obstac
 Whether you're a recent graduate, a mid-career professional, or a seasoned executive, this book has something for you. By embracing the power of interviewing excellence, you can elevate your career potential and outshine the competition in any interview setting. So let's get started on the journey to interviewing excellence and career success.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
