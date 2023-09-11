@@ -1,5 +1,4 @@
-Chapter 9: Sending Thank-You Notes and Follow-Up Emails
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The interview process doesn't conclude when you walk out of the interview room. Sending thoughtful thank-you notes and follow-up emails is a crucial step in leaving a lasting impression and demonstrating your professionalism. In this chapter, we'll explore the importance of these communications and provide practical strategies for crafting them effectively.
 

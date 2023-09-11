@@ -1,5 +1,4 @@
-Chapter 8: Using Advanced Storytelling Techniques to Make Your Answers Compelling
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Storytelling is a powerful tool in interviews. It helps you connect with interviewers, showcase your skills, and leave a lasting impression. In this chapter, we will explore advanced storytelling techniques to make your answers not just informative but also compelling.
 

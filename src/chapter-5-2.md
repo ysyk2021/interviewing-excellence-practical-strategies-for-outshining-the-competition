@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Managing Interview Anxiety
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Interview anxiety is a common obstacle on the path to interviewing excellence. However, with the right techniques and strategies, you can learn to manage and overcome this anxiety. In this chapter, we will explore practical methods to help you stay calm, composed, and confident during interviews.
 

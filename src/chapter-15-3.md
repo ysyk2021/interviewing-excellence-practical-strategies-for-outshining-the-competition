@@ -1,7 +1,6 @@
 Certainly! Here's a markdown-formatted chapter titled "Proven Methods for Making a Lasting Impact on the Interviewer with Excellence" for the book "Interviewing Excellence: Practical Strategies for Outshining the Competition":
 
-Chapter 9: Proven Methods for Making a Lasting Impact on the Interviewer with Excellence
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

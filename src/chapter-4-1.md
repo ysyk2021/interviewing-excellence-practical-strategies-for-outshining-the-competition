@@ -1,5 +1,4 @@
-Chapter: Developing a Strong Personal Brand
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing a strong personal brand and provide practical strategies to help you stand out and excel in the competitive world of interviews and career advancement.
 

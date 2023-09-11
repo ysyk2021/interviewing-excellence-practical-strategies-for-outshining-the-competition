@@ -1,5 +1,4 @@
-Chapter 8: Tools and Resources for Interview Preparation and Success
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Successful interview preparation involves more than just knowing the basics; it requires access to valuable tools and resources that can enhance your readiness and confidence. In this chapter, we will explore various tools and resources that can help you excel in interviews.
 

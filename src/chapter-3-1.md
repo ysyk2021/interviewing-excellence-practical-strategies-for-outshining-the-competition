@@ -1,5 +1,4 @@
-Chapter 4: Gathering Information about the Company and Its Culture
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To excel in interviews, it's essential to have a deep understanding of the company you're interviewing with, including its culture, values, and mission. In this chapter, we'll explore strategies for gathering valuable information about the company and its culture to help you stand out in the interview process.
 

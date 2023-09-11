@@ -1,5 +1,4 @@
-Chapter 12: Strategies for Staying Top-of-Mind with Hiring Managers
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's competitive job market, it's not enough to simply excel in interviews; you also need to stay top-of-mind with hiring managers to increase your chances of landing the job. This chapter explores effective strategies for maintaining a positive and lasting impression long after your interview has concluded.
 

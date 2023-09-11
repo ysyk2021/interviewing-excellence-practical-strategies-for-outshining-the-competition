@@ -1,7 +1,6 @@
 Certainly! Here's a markdown-formatted chapter titled "Techniques for Answering Difficult or Unexpected Questions with Excellence" for the book "Interviewing Excellence: Practical Strategies for Outshining the Competition":
 
-Chapter 6: Techniques for Answering Difficult or Unexpected Questions with Excellence
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

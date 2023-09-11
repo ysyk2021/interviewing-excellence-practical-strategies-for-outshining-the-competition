@@ -1,5 +1,4 @@
-Chapter 11: Tips for Researching and Determining Fair Compensation
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Negotiating your compensation package is a crucial step in the interview process. In this chapter, we'll explore effective strategies for researching and determining fair compensation to ensure you receive a competitive offer.
 

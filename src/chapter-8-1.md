@@ -1,7 +1,6 @@
 Certainly! Here's a markdown-formatted chapter titled "Phone and Video Interviews" for the book "Interviewing Excellence: Practical Strategies for Outshining the Competition":
 
-Chapter 6: Phone and Video Interviews
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

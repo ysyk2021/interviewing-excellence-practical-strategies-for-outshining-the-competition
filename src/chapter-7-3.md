@@ -1,5 +1,4 @@
-Chapter 8: Providing Evidence of Your Qualifications
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Demonstrating your qualifications with concrete evidence is a critical aspect of interviewing excellence. In this chapter, we will explore practical strategies and techniques to effectively present proof of your skills, experience, and achievements during interviews, leaving no doubt in the interviewer's mind about your qualifications.
 

@@ -1,5 +1,4 @@
-Chapter 10: Identifying Potential Interview Questions
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To excel in interviews, it's crucial to anticipate and prepare for a wide range of potential questions. In this chapter, we will explore strategies for identifying the types of questions you might encounter and how to effectively prepare for them.
 

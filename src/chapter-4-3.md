@@ -1,5 +1,4 @@
-Chapter 3: Crafting a Resume and Cover Letter that Stand Out
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's competitive job market, your resume and cover letter are your first opportunity to make a positive impression on potential employers. Crafting a resume and cover letter that stand out from the crowd is crucial for landing the job of your dreams. In this chapter, we'll explore practical strategies for creating a compelling resume and cover letter that will outshine the competition.
 

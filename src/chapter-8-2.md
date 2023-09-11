@@ -1,7 +1,6 @@
 Certainly! Here's a markdown-formatted chapter titled "Group Interviews" for the book "Interviewing Excellence: Practical Strategies for Outshining the Competition":
 
-Chapter 7: Group Interviews
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

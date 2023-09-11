@@ -1,5 +1,4 @@
-Chapter 10: Understanding the Salary Negotiation Process
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Salary negotiation is a crucial phase in the job interview process, and understanding it is vital for securing a fair and competitive compensation package. In this chapter, we will delve into the intricacies of the salary negotiation process.
 

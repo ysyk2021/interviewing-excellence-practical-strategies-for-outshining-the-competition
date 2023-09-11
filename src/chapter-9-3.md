@@ -1,7 +1,6 @@
 Certainly! Here's a markdown-formatted chapter titled "What to Do If You Don't Get the Job" for the book "Interviewing Excellence: Practical Strategies for Outshining the Competition":
 
-Chapter 5: What to Do If You Don't Get the Job
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

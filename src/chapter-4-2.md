@@ -1,5 +1,4 @@
-Chapter 4: Creating a Professional Online Presence
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, your online presence plays a significant role in how you are perceived by potential employers and professional connections. Building and maintaining a professional online presence is essential for outshining the competition in your career journey. In this chapter, we will explore strategies and tips for establishing a strong and positive online presence.
 

@@ -1,5 +1,4 @@
-Chapter 11: Techniques for Continuous Improvement of Your Interviewing Skills
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The path to interviewing excellence is an ongoing journey, and continuous improvement is key to staying ahead of the competition. In this chapter, we will explore techniques and strategies for continuously enhancing your interviewing skills.
 

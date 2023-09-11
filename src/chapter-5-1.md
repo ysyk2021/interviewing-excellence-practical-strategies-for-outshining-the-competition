@@ -1,5 +1,4 @@
-Chapter 9: Tips for Creating an Effective Interview Preparation Plan
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 An essential aspect of achieving interviewing excellence is meticulous preparation. In this chapter, we will delve into strategies and tips for crafting a comprehensive interview preparation plan that will set you up for success.
 

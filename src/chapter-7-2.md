@@ -1,5 +1,4 @@
-Chapter 7: Showcasing Your Skills, Achievements, and Experience
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 One of the key elements of interviewing excellence is the ability to effectively showcase your skills, achievements, and experience to prospective employers. In this chapter, we will explore practical strategies and techniques to help you highlight your qualifications and stand out from the competition.
 

@@ -1,5 +1,4 @@
-Chapter 5: Different Types of Job Interviews
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Navigating the job market means understanding and preparing for a diverse range of interview formats. From traditional one-on-one interviews to challenging panel settings, each type tests various facets of a candidate's suitability for a role. By understanding these different formats, you can tailor your preparation and performance, thereby optimizing your chances of success. Let's delve into the various types of job interviews you might encounter.
 

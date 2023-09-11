@@ -1,5 +1,4 @@
-Chapter 6: The STAR Method for Answering Behavioral Questions with Excellence
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Behavioral questions are a common and crucial part of the interview process. In this chapter, we will explore the STAR method---an effective framework for responding to behavioral questions with excellence.
 

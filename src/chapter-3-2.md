@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Job Requirements and Responsibilities
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Before you can excel in an interview, you must have a deep understanding of the job you're applying for. In this chapter, we will delve into the importance of comprehending the job requirements and responsibilities, and how to use this understanding to your advantage in the interview process.
 

@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Building Confidence and a Winning Mindset
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey toward interviewing excellence, developing confidence and fostering a winning mindset are paramount. Confidence not only shapes how you present yourself during an interview but also influences your overall performance and success. This chapter will explore a range of practical strategies to boost your confidence and cultivate a winning mindset, helping you stand out from the competition.
 

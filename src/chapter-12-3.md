@@ -1,5 +1,4 @@
-Chapter 7: Demonstrating Leadership Skills and Potential with Excellence
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership skills are highly sought after by employers, as they are indicative of an individual's ability to drive positive change within an organization. In this chapter, we will explore effective strategies for showcasing your leadership skills and potential during job interviews.
 
